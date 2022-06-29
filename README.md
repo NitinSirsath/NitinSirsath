@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **nitinsirsath8855@gmail.com**
 
-- 📄 Know about my experiences [https://rb.gy/o0hrjp](https://rb.gy/o0hrjp)
+- 📄 Know about my experiences [Here](https://rb.gy/o0hrjp)
 
 - ⚡ Fun fact **DC is better**
 
